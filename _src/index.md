@@ -121,7 +121,7 @@ Then it is still the gestalt of your being<br>
 You still feel the weight of your existence<br>
 You still feel joy<br>
 Still feel pain<br>
-You still suffer
+Still suffer
 
 Pray to god and save your soul<br>
 Pray to god and save your higher self from your lower self
@@ -130,6 +130,6 @@ You are one of many<br>
 And <strong>we are all connected<br>
 In our joy and our suffering</strong>
 
-Find your virtue before it’s too late<br>
+Find your virtue<br>
 Leave the world a better place than you found it<br>
 For all our sakes
